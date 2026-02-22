@@ -71,7 +71,7 @@ Hebrew – Native | English – Fluent reading, writing, speaking
 GitHub: @chava-rottenberg
 Email: [chavi4694@gmail.com](mailto:chavi4694@gmail.com)
 
-*"Building technological solutions that transform the way businesses operate"
+>"Building technological solutions that transform the way businesses operate"
 
 
 
