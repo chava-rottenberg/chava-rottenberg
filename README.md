@@ -1,5 +1,5 @@
 
-# Chava Rottenberg – Full Stack Developer
+# Chava Hershkowitz – Full Stack Developer
 
 ## Profile
 
